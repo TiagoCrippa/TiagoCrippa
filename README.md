@@ -1,3 +1,6 @@
+![image](https://github.com/TiagoCrippa/TiagoCrippa/assets/160522276/a14c198f-d0c0-4f12-befc-d8f87c69950c)
+
+
 ### Olá, eu sou o Tiago 👋
 
 ### 💫  &nbsp;Sobre mim
